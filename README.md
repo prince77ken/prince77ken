@@ -12,4 +12,13 @@ Looking for a Developer? Let's schedule a Zoom chat!
 
 You can reach me via the following channels:
 
+[Linkedin](https://www.linkedin.com/in/princechiboy77/)<br/>
+[Website](https://
+[Twittter](https://x.com/chiboy7562)<br/>
+[Email:princechiboy548@gmail.com](https://mail.google.com/mail/u/0/#inbox?compose=new)<br/>
+[Whatsapp](https://api.whatsapp.com/send?phone=2349069090201&text&ap-p_absent=0)<br/>
+[Snapchat](https:www.snapchat.com/add/chi_fund?)<br/>
+[Facebook](https:www.facebook.com/share/1FayVhjTYD/?mibextid=LQQJ4d)<br/>
+
+
 
