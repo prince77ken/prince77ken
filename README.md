@@ -17,6 +17,7 @@ You can reach me via the following channels:
 [Twittter](https://x.com/chiboy7562)<br/>
 [Email:princechiboy548@gmail.com](https://mail.google.com/mail/u/0/#inbox?compose=new)<br/>
 [Whatsapp](https://api.whatsapp.com/send?phone=2349069090201&text&ap-p_absent=0)<br/>
+[Instagram](https:instagram.com/princeken309)<br/>
 
 
 
